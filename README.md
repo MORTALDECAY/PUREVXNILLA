@@ -1,4 +1,4 @@
-# MORTALDECAY
+# VANILLA KINGDOM
 
 hi. umm idk what to rly put here were not very active but!! were always o2i
 
