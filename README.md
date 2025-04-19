@@ -8,4 +8,4 @@ https://sunkiller.straw.page
 
 and heres our linktree
 
-https://github.com/MORTALDECAY/MORTALDECAY/blob/main/linktree
+https://github.com/PUREVXNILLA/PUREVXNILLA/blob/main/linktree
