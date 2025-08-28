@@ -1,4 +1,4 @@
-# VANILLA KINGDOM
+# MORTALDECAY
 
 hi. umm idk what to rly put here were not very active but!! were always o2i
 
@@ -8,4 +8,4 @@ https://sunkiller.straw.page
 
 and heres our linktree
 
-https://github.com/PUREVXNILLA/PUREVXNILLA/blob/main/linktree
+https://github.com/MORTALDECAY/MORTLDECAY/blob/main/linktree
